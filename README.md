@@ -1,16 +1,15 @@
-## Hi there 👋
+## seja bem vindo ao meu perfil 💙
 
-<!--
-**lavinia254/lavinia254** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+meu nome é Lavinia dos santos
 
-Here are some ideas to get you started:
+- EU gosto muito de comer e dormir
+- Sou tia da anna laura e da Maria helena
+- Gosto de dançar e ouvir musica
+- Sou filha de duas pessoas legais
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Voce pode entra em contato comigo 📧
+ruylavinia2@gmail.com
+
+@lavi_santos3314
+
+![](https://media1.tenor.com/m/EvXOBGTFWg4AAAAd/not-funny-eye-roll.gif)
